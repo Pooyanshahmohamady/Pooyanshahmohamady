@@ -2,7 +2,7 @@
 Whatsapp iran: +989109514970
 Whatsapp usa:  +18452750508 
 telegram: https://t.me/pooyanshahmohamady 
-Instagram: https://instagram.com/pooyanshahmohamady 
+Instagram: https://instagram.com/pooyanshahmohamady
 website: https://www.shahmohamady.ir
 
 like ❤️
