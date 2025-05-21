@@ -1,4 +1,4 @@
-## Hi there 👋
+## سلام من پویان هستم تو زمینه آی تی و برق هوافضا و تجهیزات پزشکی کار میکنم👋
 
 <!--
 **Pooyanshahmohamady/Pooyanshahmohamady** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
