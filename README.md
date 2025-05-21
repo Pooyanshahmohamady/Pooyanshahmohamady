@@ -2,9 +2,8 @@
 Whatsapp iran: +989109514970
 Whatsapp usa:  +18452750508 
 telegram: https://t.me/pooyanshahmohamady 
-Instagram: https://instagram.com/pooyanshahmohamady
-website: https://www.shahmohamady.ir
-
+web: https://www.shahmohamady.ir
+Instagram: https://Instagram.com/pooyanshahmohamady
 like ❤️
 <!--
 **Pooyanshahmohamady/Pooyanshahmohamady** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
